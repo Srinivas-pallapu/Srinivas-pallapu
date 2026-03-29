@@ -1,4 +1,4 @@
-# 💫 About Me:
+
 Hi! I’m Srinivas 👋<br>💻 Passionate Developer & Designer | Web, AI & ML<br>🎨 I create clean, interactive, and visually appealing digital experiences<br>🚀 Always learning, experimenting, and turning ideas into reality<br>📫 Reach me at: srinivaspallapu9381gmail.com ✉️
 
 
